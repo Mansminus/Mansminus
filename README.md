@@ -1,6 +1,6 @@
 ### Welcome to my Github Profile 👋
 
-#### Social Links:
+#### Social Links (Just don't question my names or the contents on my social media):
 - [My Steam account](https://steamcommunity.com/id/Mansminus/)
 - [My Discord: Mansminus#7577]
 - [My Instagram](https://www.instagram.com/mansminus/)
