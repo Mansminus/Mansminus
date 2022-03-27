@@ -2,6 +2,7 @@
 
 #### Social Links:
 - [My Steam account](https://steamcommunity.com/id/Mansminus/)
+- [My Discord: Mansminus#7577]
 - [My Instagram](https://www.instagram.com/mansminus/)
 <!--
 **Mansminus/Mansminus** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
