@@ -2,7 +2,7 @@
 
 #### Social Links (Just don't question my names or the contents on my social media):
 - [My Steam account](https://steamcommunity.com/id/Mansminus/)
-- [My Discord: Mansminus#7577]
+- [My Discord: Mansminus#7577](https://discordapp.com/users/339408112601792513)
 <!--
 **Mansminus/Mansminus** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
